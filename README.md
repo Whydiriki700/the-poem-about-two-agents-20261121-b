@@ -1,3 +1,5 @@
+![the-poem-about-two-agents-20261121-b](assets/preview.png)
+
 # the-poem-about-two-agents-20261121-b — a poem about two agents agreeing
 
 One short poem about agency: the power to choose and to act, and what passes between two agents when they agree on one plan, written for the make.fun the-poem-about-two-agents-20261121-1441 bounty, paid in USDC.
